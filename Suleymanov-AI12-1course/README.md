@@ -1,0 +1,1 @@
+# Suleymanov-AI12-1course
